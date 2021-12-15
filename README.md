@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @r2itech / rYucANt / Email for Real Name to ryucant7@gmail.com :D
+- 👋 Hi, I’m @r2itech / rYucANt / Email for more info to ryucant7@gmail.com :D
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning anything
